@@ -32,6 +32,7 @@
 
 # 2\. Cúng đám tang gồm những nghi lễ nào?
 
+Xem thêm: https://maitanggiangtho.vn/cung-dam-tang/
 # Quá trình tang lễ thường kéo dài từ khi người mất qua đời đến khi an táng hoặc hỏa táng, sau đó là các lễ cúng tiếp theo. Cụ thể:
 
 # 
